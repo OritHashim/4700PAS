@@ -1,2 +1,1 @@
-
-Winter ELEC 4700 PAs - Orit Hashim}
+Winter ELEC 4700 PAs - Orit Hashim
